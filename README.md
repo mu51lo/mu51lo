@@ -1,16 +1,111 @@
-## Hi there 👋
-
-<!--
-**mu51lo/mu51lo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+ 👋
+🤙 SALVE 🤙
+eu sou Murilo Borges
+eu não sou gay
+estou sendo forçado a estudar no alura
+Gosto de robloquis
+NÃO ENTRE EM CONTATO COMIGO
+00001103488909sp@al.educacao.sp.gov.br
+@mu51lo
